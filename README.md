@@ -13,3 +13,22 @@ Master School ＆ Major :  Tunghai University Global Master ｏf Business Admini
 Under Graudate School ＆ Major:  Chang Jung Christian University International Bussiness 
 
 ## Education 
+2022  Tunghai University Global Master ｏf Business Administration
+
+2018  Chang Jung Christian University International Bussiness 
+
+2015 Wagor High School
+
+2012 High School of Tung Hai University
+
+## Language 
+ 
+TOEIC 
+
+Mandarin
+
+## License
+ 
+人力資源管理師 
+
+勞動事務師
